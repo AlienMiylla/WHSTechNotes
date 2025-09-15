@@ -8,3 +8,6 @@ The new cell phone rule by the law I really really really hate it. There are peo
 # Septemeber 8, 2025
 
 I wanna be a meteorologist since it is used for abunch of computer and having to learn about stuff for meteorologist having to learn all of this which is really crazy but at the sametime it is fun to do all of this stuff since I want to be a meteorologist. This is the only thing I want to be.
+
+# Swptember 15, 2025
+Just tell them to use AI for help like if you don't how to read what are you doing in life! Use AI to help you learn how to read. If your stuck with math and no one can help you use AI to teach you and don't go al the way down just for the answer read the whole entire thing so you understand how it helps you and your brain use it step by step.
