@@ -23,3 +23,7 @@ Employment Standards: To comply with employment standards and ensure real wages,
 # September 30, 2025
 
 The phrase "6, 7" is mostly meaningless, a nonsensical inside joke that spread through TikTok. Its origin traces back to a viral rap song, and some memes also connect it to basketball player LaMelo Ball's height. Students use it to indicate something is "so-so" or simply as a playful, random interjection in class or hallways. The moody fun is in the shared, absurd reference, often accompanied by a hand motion. It is meant to be funny and confusing to adults. Students repeat it because it signifies belonging to an online youth culture. All of this is just a meme 6 7!
+
+# October 6, 2025
+
+I would allow phones Ai because it's better than a regular teacher but it's not only for answers it can teach you a easy way of teaching you and I would unbocked all the games because im that one person and every dosen't have a chance to either play games when they get home. I'm gonna add an hour for lunch time. No more Math and No more staar testing,no more homework and give us easy work. Band I have nothing to say for that because it's easy and fun and I also have nothing to say in this class because it's fun.
