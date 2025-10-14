@@ -28,6 +28,8 @@ The phrase "6, 7" is mostly meaningless, a nonsensical inside joke that spread t
 
 I would allow phones Ai because it's better than a regular teacher but it's not only for answers it can teach you a easy way of teaching you and I would unbocked all the games because im that one person and every dosen't have a chance to either play games when they get home. I'm gonna add an hour for lunch time. No more Math and No more staar testing,no more homework and give us easy work. Band I have nothing to say for that because it's easy and fun and I also have nothing to say in this class because it's fun.
 
-# October 7, 2025
+# October 14, 2025
 
-I did hour of code today.
+The Water Cycle
+
+The water cycle, also known as the hydrological cycle, is the continuous movement of water on, above, and below the surface of the Earth. It’s a natural process that recycles Earth’s water supply and supports all forms of life.Main Stages of the ater cycle evaporation. Water from oceans, rivers, lakes, and other bodies of water is heated by the sun and turns into water vapor, rising into atmosphere.Transpiration:Plants release water vapor Plants release water vapor from their leaves into the air, adding to the moisture in the atmosphere.As water vapor rises and cools, it changes back into tiny droplets of liquid water, forming clouds.When the droplets in clouds become too heavy, they fall back to Earth as rain, snow, sleet, or hail.Some of the water that reaches the ground seeps into the soil and replenishes underground water sources known as aquifers.Water that doesn’t soak into the ground flows over the land and collects in rivers, lakes, and oceans, where the cycle begins again.Importance of the Water CycleRegulates climate by distributing heat and moisture around the planet.Supports ecosystems by providing fresh water for plants and animals.Purifies water naturallythrough evaporation and condensation.Drives weather patterns and influences rainfall distribution.Fun FactThe water you drink today may have once been part of a glacier, a cloud, or even a dinosaur’s drink millions of years ago — because water is constantly recycled through this endless cycle.
