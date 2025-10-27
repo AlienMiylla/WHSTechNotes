@@ -43,3 +43,7 @@ Paragraph:	Text:
 Franklin is in class 1st his seat 91A
 Hardeep is in class 2nd and her seat is 35B
 Marla is in class 3rd and her seat is 61F. Now they like there seats which is a good thing.
+
+# Octtober 27, 2025
+
+Satellite weather tracking: Weather satellites provide early warning by monitoring the development of storms like Hurricane Melissa. They capture and transmit data on a storm's size, wind speed, and trajectory, allowing forecasters to issue timely and accurate warnings. This gives residents a critical lead time to prepare.Predictive AI modeling: Sophisticated AI models can analyze years of historical weather data to simulate flood scenarios. This helps city planners and emergency managers determine which areas are most at risk and plan effective evacuation routes ahead of a disaster.Emergency notification systems: Platforms like the NOAA Weather Radio and Wireless Emergency Alerts (WEAs) on smartphones send targeted warnings to people in affected areas. This ensures residents receive critical information about mandatory evacuations and safety precautions directly on their devices. Emergency notification systems: Platforms like the NOAA Weather Radio and Wireless Emergency Alerts (WEAs) on smartphones send targeted warnings to people in affected areas. This ensures residents receive critical information about mandatory evacuations and safety precautions directly on their devices.
