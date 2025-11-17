@@ -54,4 +54,8 @@ The core problem is that millions of low-income Americans rely on SNAP benefits 
 
 # November 10, 2025
 
-Technology has changed holiday celebrations by enabling virtual connections with faraway loved ones, transforming shopping with e-commerce, and providing new ways to decorate and share experiences through social media and digital content. However, it can also cause stress and create a divide between those who are present and those who are on their devices. Apps like Zoom, FaceTime, and Skype allow families to hold virtual dinners, open gifts, and share holiday greetings, bridging geographical distances. Messaging apps like WhatsApp and social media platforms like Facebook and Instagram make it easy to share photos and updates instantly with a large network. 
+Technology has changed holiday celebrations by enabling virtual connections with faraway loved ones, transforming shopping with e-commerce, and providing new ways to decorate and share experiences through social media and digital content. However, it can also cause stress and create a divide between those who are present and those who are on their devices. Apps like Zoom, FaceTime, and Skype allow families to hold virtual dinners, open gifts, and share holiday greetings, bridging geographical distances. Messaging apps like WhatsApp and social media platforms like Facebook and Instagram make it easy to share photos and updates instantly with a large network.
+
+# November 17, 2025
+
+I'm so ready for thanksgiving break I'm going to Houston with my grandma she can't go alone and also she has to go to the hospital to get a check up and also I'm hanging out from my mom's side. I'm leaving my parent and hoping they won't bother me when I go for a week I also hope it dosen't go by fast if it does I'm gonna cry.
