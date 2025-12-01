@@ -59,3 +59,7 @@ Technology has changed holiday celebrations by enabling virtual connections with
 # November 17, 2025
 
 I'm so ready for thanksgiving break I'm going to Houston with my grandma she can't go alone and also she has to go to the hospital to get a check up and also I'm hanging out from my mom's side. I'm leaving my parent and hoping they won't bother me when I go for a week I also hope it dosen't go by fast if it does I'm gonna cry.
+
+# December 1, 2025
+
+The programmers are taking photos up high with the drone I don't think it's a real job or anything because all they do is fly around and like take pictures of people or things but will I use it? I would use it for tonado chasing to look closer at it.
