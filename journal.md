@@ -63,3 +63,8 @@ I'm so ready for thanksgiving break I'm going to Houston with my grandma she can
 # December 1, 2025
 
 The programmers are taking photos up high with the drone I don't think it's a real job or anything because all they do is fly around and like take pictures of people or things but will I use it? I would use it for tonado chasing to look closer at it.
+
+
+# December 8, 2025
+
+Self Drving cars are dumb there not real human beings they just use AI. AI dosen't use real world stuff they don't know what a red light is, they don't know the speed there going on, they don't see humans crossing, yellow buses know everything because that is a real human being. Real people know the rules to a school bus the driver has to pick up certain students that are allowed in a school bus, picking them up at the spot then they go to school. After school they drop them off at there stop. AI misses there students and they run over them and then they just miss there stop.
