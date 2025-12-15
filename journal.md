@@ -68,3 +68,7 @@ The programmers are taking photos up high with the drone I don't think it's a re
 # December 8, 2025
 
 Self Drving cars are dumb there not real human beings they just use AI. AI dosen't use real world stuff they don't know what a red light is, they don't know the speed there going on, they don't see humans crossing, yellow buses know everything because that is a real human being. Real people know the rules to a school bus the driver has to pick up certain students that are allowed in a school bus, picking them up at the spot then they go to school. After school they drop them off at there stop. AI misses there students and they run over them and then they just miss there stop.
+
+# December 15,  2025
+
+I'm gonna go to six flags at some point during the break with Daunte and then I'm gonna sit down and do aabsoulte nothing at all because I don't know why.
