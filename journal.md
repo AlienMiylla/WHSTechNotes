@@ -71,7 +71,7 @@ Self Drving cars are dumb there not real human beings they just use AI. AI dosen
 
 # December 15, 2025
 
-I'm gonna go to six flags at some point during the break with Daunte and then I'm gonna sit down and do aabsoulte nothing at all because I don't know why.
+I'm gonna go to six flags at some point during the break with Daunte and then I'm gonna sit down and do absoulte nothing at all because I don't know why.
 
 # January 6, 2026
 
