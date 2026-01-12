@@ -76,3 +76,7 @@ I'm gonna go to six flags at some point during the break with Daunte and then I'
 # January 6, 2026
 
 I only used my phone which is doom scorlled and play my favorite game Smash Legends. I get a brand new Nintendo Switch 2 and that was the only technology I used over my break.
+
+# January 12, 2026
+
+There are weird people out there looking at 8 year old kids or little kids. Other people just want to online date and that is grosse what if they lie about there age. Giving your personal information because then they can track you and find you and do some bad stuff to you and I don't want to know what they do to you or someone else.
