@@ -80,3 +80,7 @@ I only used my phone which is doom scorlled and play my favorite game Smash Lege
 # January 12, 2026
 
 There are weird people out there looking at 8 year old kids or little kids. Other people just want to online date and that is grosse what if they lie about there age. Giving your personal information because then they can track you and find you and do some bad stuff to you and I don't want to know what they do to you or someone else.
+
+# January 20, 2026
+
+It can help posting stuff for people freedom and action to support the commication to other and to join in if technonlgy ever existed back then.
