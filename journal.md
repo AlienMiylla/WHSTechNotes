@@ -88,3 +88,8 @@ It can help posting stuff for people freedom and action to support the commicati
 # January 29, 2026
 
 The map testing is stupid why is it asking me kid qestions? One of them said 6 7 why just why? I rather do something else than wasting my time with the MAP testing. Like just give them my work that has been graded on and see where I'm at not a test where they ruin my health on these things to stess about.
+
+
+# February 2, 2026
+
+We have to be a perfession person and talk very nice we have to share some spaces with other people.
