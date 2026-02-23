@@ -97,3 +97,7 @@ We have to be a perfession person and talk very nice we have to share some space
 # February 10, 2026
 
 I only watched Bad Bunny Performed.
+
+# February 23, 2026
+
+I don't watch anything not even the olympics but if I did the only technology I would be using is the TV.
