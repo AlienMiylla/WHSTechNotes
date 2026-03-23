@@ -105,3 +105,7 @@ I don't watch anything not even the olympics but if I did the only technology I 
 # March 2, 2026
 
 Ziprecruiter. ZipRecruiter is an online employment marketplace that uses AI-driven technology to connect job seekers with employers. Unlike a traditional job board that simply lists openings, it functions as a distribution hub and matching service. Employers post a job once, and ZipRecruiter automatically distributes it to over 100 other job boards and niche sites. Its AI technology scans millions of resumes to find candidates whose skills match the job description and then proactively invites them to apply. A centralized dashboard allows hiring managers to sort, rate, and message applicants. Features like ZipApply allow candidates to submit applications without leaving the site, and ZipIntro enables quick video screening sessions.
+
+# March 23, 2026
+
+I don't remember what I put but I have very good hopes of seeing if I can get the games correctly and seeing if I get them some right for the games.
