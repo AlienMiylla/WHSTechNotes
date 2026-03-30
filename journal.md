@@ -109,3 +109,8 @@ Ziprecruiter. ZipRecruiter is an online employment marketplace that uses AI-driv
 # March 23, 2026
 
 I don't remember what I put but I have very good hopes of seeing if I can get the games correctly and seeing if I get them some right for the games.
+
+
+# March 30, 2026
+
+By clicking on AI and help me with some confuseing stuff because ai can help you understand. Some teachers are bad than other.
