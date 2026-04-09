@@ -114,3 +114,7 @@ I don't remember what I put but I have very good hopes of seeing if I can get th
 # March 30, 2026
 
 By clicking on AI and help me with some confuseing stuff because ai can help you understand. Some teachers are bad than other.
+
+# April 9, 2026
+
+We are smart better than AI because they give us wrong information.  We made alot of history thruout this world. There's nothing AI can do we are better :)
