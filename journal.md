@@ -118,3 +118,7 @@ By clicking on AI and help me with some confuseing stuff because ai can help you
 # April 9, 2026
 
 We are smart better than AI because they give us wrong information.  We made alot of history thruout this world. There's nothing AI can do we are better :)
+
+# April 13, 2026
+
+They use the help of ai to see what people caan put inside the rocket ship and then put people in it then go to the moon. Then they come back and dance.
