@@ -122,3 +122,7 @@ We are smart better than AI because they give us wrong information.  We made alo
 # April 13, 2026
 
 They use the help of ai to see what people caan put inside the rocket ship and then put people in it then go to the moon. Then they come back and dance.
+
+# April 20 2026
+
+Ai dosen't make good music only people do. They only just make it while us humans we use our voices because some people are in choir and we sing we make music vids and do all of this stuff.
