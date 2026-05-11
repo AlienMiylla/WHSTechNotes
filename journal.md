@@ -132,3 +132,7 @@ Ai dosen't make good music only people do. They only just make it while us human
 # May 6, 2026
 
 I used of "I'm not a robot" is because they don't want any AI or robots to do this website just for safey reasons. They don't want AI in there program they want real people to do the website so they actually know who was real and not real people. Plus people have eyes to see what is what, AI doesn't have eyes they have nothing but answers and some tools to help you alot.
+
+# May 11, 2026
+
+I grew from being smart to being smart. I grew up from here and I've been to alot of different schools and that I have grew very very smart and I'm a very great person and I have made a few friends in this class peiod.
