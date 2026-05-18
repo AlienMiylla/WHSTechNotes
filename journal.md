@@ -136,3 +136,7 @@ I used of "I'm not a robot" is because they don't want any AI or robots to do th
 # May 11, 2026
 
 I grew from being smart to being smart. I grew up from here and I've been to alot of different schools and that I have grew very very smart and I'm a very great person and I have made a few friends in this class peiod.
+
+# May 18, 2026
+
+If my boyfriend went missing. I would tell the popo that he is handsome he has dirty blond hair, he is tall very tall mabey 5,10 he wear a blue jacket with a zipper he will always wear it, he wears Reebok shoes all the time, he wears basic t-shirts all the time, he is the type of person who loves me and he is friends with alot of people but I'm the one who should find because we been dating for 4 years and it's gonna be 5 years this Friday.
